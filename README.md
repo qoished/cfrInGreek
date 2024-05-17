@@ -1,0 +1,1 @@
+This is a recipe I made myself for chicken fillet and rice in greek. If you guys need a translation I will make a proper UI and tranlate it to english. I'll also add more recipes as time goes. I hope you enjoy it.
